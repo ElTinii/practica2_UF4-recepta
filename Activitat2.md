@@ -24,14 +24,18 @@ La **receta de migas andaluzas** que te presento a continuación es una receta s
 | [ ] 2 carcasas de pollo                     | [ ] 1 huesos de ternera                                       |
 | [ ] 1 muslo                           | [ ] 1 pizca de sal                                        |
 
-**También te puede interesar:** [Migas extremeñas caseras](https://www.recetasgratis.net/receta-de-migas-extremenas-caseras-60269.html)
+**También te puede interesar:** [Caldo de verduras y pollo](href="https://www.recetasgratis.net/receta-de-caldo-de-verduras-y-pollo-56094.html")
 
-### Cómo hacer Migas de Pan Andaluzas:
-1. Antes de ponerte a cocinar migas, lo primero que debes hacer es **cortar el pan** en cuadritos pequeños, como si fueran picatostes. Esto lo puedes hacer con un cuchillo o directamente con las tijeras de cocina.
+### Cómo hacer Caldo de pollo sin verduras:
+**1.** ¿Te preguntas cómo preparar caldo de pollo sencillo? Pues bien, para empezar con la receta de caldo de pollo sin verduras, primero debes preparar el pollo. Asimismo, **limpia bien retirando la piel y toda la grasa** que tenga este. Luego, **limpia las carcasas de sangre** y restos. Al muslo se debe quitar también la piel.
 
-Recuerda que debes usar pan duro, viejo de al menos un día y, si es posible, utiliza siempre un pan que tenga una buena miga.
+***Truco**: se puede añadir más huesos de pollo, con carne o sin carne y, luego, se puede aprovechar la carne para preparar croquetas*.
 
-2. A la hora de cocinar, calienta una sartén con un buen chorro de aceite y empieza por sofreír los ajos troceados hasta que empiecen a dorarse.
+![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_0_600.jpg)
+
+<big>2.</big> **Lava los huesos**, el salado es un hueso de rodilla ,el hueso salado le da sabor al caldo y que quede más blanco.
+
+***Truco**el hueso salado le da sabor al caldo.*
 
 3. A continuación, coloca toda la carne en la sartén, es decir, el chorizo, el bacon, el jamón dulce y la chistorra, y sofríe en conjunto. La idea es que el aceite vaya tomando el sabor de todos estos ingredientes.
 
