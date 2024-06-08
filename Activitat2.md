@@ -24,7 +24,7 @@ La **receta de migas andaluzas** que te presento a continuación es una receta s
 | [ ] 2 carcasas de pollo                     | [ ] 1 huesos de ternera                                       |
 | [ ] 1 muslo                           | [ ] 1 pizca de sal                                        |
 
-**También te puede interesar:** [Caldo de verduras y pollo](href="https://www.recetasgratis.net/receta-de-caldo-de-verduras-y-pollo-56094.html")
+**También te puede interesar:** [Caldo de verduras y pollo](https://www.recetasgratis.net/receta-de-caldo-de-verduras-y-pollo-56094.html)
 
 ### Cómo hacer Caldo de pollo sin verduras:
 ##1. ¿Te preguntas cómo preparar caldo de pollo sencillo? Pues bien, para empezar con la receta de caldo de pollo sin verduras, primero debes preparar el pollo. Asimismo, **limpia bien retirando la piel y toda la grasa** que tenga este. Luego, **limpia las carcasas de sangre** y restos. Al muslo se debe quitar también la piel.
@@ -49,22 +49,25 @@ La **receta de migas andaluzas** que te presento a continuación es una receta s
 
 ![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_3_600.jpg)
 
-##5. 
+##5. **Cuela el caldo y reserva en la nevera** unas horas o toda una noche. Al día siguiente se habrá formado una capa dura, esta es la grasa que ha soltado el pollo. Puedes retirarla con una cuchara.
 ![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_4_600.jpg)
 
- ##6. 
+ ##6. **Puedes limpiar los huesos**, retirar la carne que tenga y acompañar el caldo con ellos. Asimismo, cuando pongas el caldo a calentar para consumir, prueba de sal y rectifica.
 
 ![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_5_600.jpg)
 
 ##7.
+Ya solo queda servir el caldo o sopa de pollo light con alguna pasta o como consomé utilizando los trocitos de pollo. ¡A comer este buen caldo de pollo blanco! Cuéntanos en los comentarios tu opinión y comparte con nosotros una fotografía del resultado final.
+
+Los restos que han quedado de pollo, puedes utilizarlo para acompañar el caldo si no quieres añadir pasta o para hacer unas [croquetas de cocido](https://www.recetasgratis.net/receta-de-croquetas-de-cocido-57926.html) o [croquetas de pollo y jamón](https://www.recetasgratis.net/receta-de-croquetas-de-pollo-y-jamon-59331.html).
 
 ![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_6_600.jpg)
 
-Otra versión de este famoso plato de comida española son las [migas de harina de trigo](https://www.recetasgratis.net/receta-de-migas-de-harina-de-trigo-59819.html). Y si te sigue sobrando pan también puedes ¡preparar un postre con pan viejo!, así que aquí tienes la receta de la [torta de pan colombiana](https://www.recetasgratis.net/receta-de-torta-de-pan-colombiana-17831.html). ¡Buen provecho!
+Si te ha gustado la receta de **Caldo de pollo sin verduras**, te sugerimos que entres en nuestra categoría de [Recetas de Caldos](https://www.recetasgratis.net/receta-de-croquetas-de-pollo-y-jamon-59331.html).
 
 ![Migas de Pan Andaluzas](img/migas_de_pan_andaluzas_59944_paso_5_600.webp)
 
-Si te ha gustado la receta de **Migas de pan andaluzas**, te sugerimos que entres en nuestra categoría de [Recetas de Migas](https://www.recetasgratis.net/Migas-busqCate-1.html). También puedes visitar una selección de las mejores [recetas españolas](https://www.recetasgratis.net/recetas-espanolas) y [recetas andaluzas](https://www.recetasgratis.net/recetas-andaluzas).
+Si te ha gustado la receta de **Migas de pan andaluzas**, te sugerimos que entres en nuestra categoría de [Recetas de Migas](https://www.recetasgratis.net/Migas-busqCate-1.html). También puedes visitar una selección de las mejores [recetas españolas](https://www.recetasgratis.net/recetas-espanolas) y [recetas andaluzas](https://www.recetasgratis.net/Caldo-busqCate-1.html).
 
 ![Migas extremeñas](img/las_originales_migas_extremenas_50605_300_150.webp)
 [Migas extremeñas](https://www.recetasgratis.net/receta-de-las-originales-migas-extremenas-50605.html)
