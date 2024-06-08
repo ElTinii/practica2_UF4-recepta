@@ -29,19 +29,19 @@ La **receta de migas andaluzas** que te presento a continuación es una receta s
 ### Cómo hacer Caldo de pollo sin verduras:
 ##1. ¿Te preguntas cómo preparar caldo de pollo sencillo? Pues bien, para empezar con la receta de caldo de pollo sin verduras, primero debes preparar el pollo. Asimismo, **limpia bien retirando la piel y toda la grasa** que tenga este. Luego, **limpia las carcasas de sangre** y restos. Al muslo se debe quitar también la piel.
 
-***Truco**: se puede añadir más huesos de pollo, con carne o sin carne y, luego, se puede aprovechar la carne para preparar croquetas*.
+***Truco:** se puede añadir más huesos de pollo, con carne o sin carne y, luego, se puede aprovechar la carne para preparar croquetas*.
 
 ![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_0_600.jpg)
 
 ##2. **Lava los huesos**, el salado es un hueso de rodilla ,el hueso salado le da sabor al caldo y que quede más blanco.
 
-***Truco**el hueso salado le da sabor al caldo.*
+***Truco:** el hueso salado le da sabor al caldo.*
 
 ![Hueso de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_1_600.jpg)
 
 ##3. **Coloca una olla con 2 litros de agua a calentar y añade todos los ingredientes**, el agua debe cubrir todo. Asimismo, si hace falta añade más agua. Deja hasta que empiece a hervir y, cuando empiece a tener espuma, retira y limpia bien de las impurezas. Cuando no salga más espuma y esté limpio, deja a fuego medio cocinar una **1 y media - 2 horas**.
 
-***Truco**si tienes una olla express o rápida solo debes dejar unos 30-40 minutos, dependiendo de la olla.*
+***Truco:** si tienes una olla express o rápida solo debes dejar unos 30-40 minutos, dependiendo de la olla.*
 
 ![Caldo de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_2_600.jpg)
 
@@ -50,6 +50,7 @@ La **receta de migas andaluzas** que te presento a continuación es una receta s
 ![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_3_600.jpg)
 
 ##5. **Cuela el caldo y reserva en la nevera** unas horas o toda una noche. Al día siguiente se habrá formado una capa dura, esta es la grasa que ha soltado el pollo. Puedes retirarla con una cuchara.
+
 ![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_4_600.jpg)
 
  ##6. **Puedes limpiar los huesos**, retirar la carne que tenga y acompañar el caldo con ellos. Asimismo, cuando pongas el caldo a calentar para consumir, prueba de sal y rectifica.
