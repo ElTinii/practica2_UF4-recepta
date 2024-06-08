@@ -1,8 +1,8 @@
-# Receta de Migas de Pan Andaluzas
+# Receta de Caldo de pollo sin verduras
 
-Por Vanessa Romero. Actualizado: 18 enero 2017
+Por Montse Morote Ortega, Bloguera cocinera, amante de la cocina de siempre: sencilla y casera.. 21 noviembre 2022
 
-![Migas de Pan Andaluzas](img/migas_de_pan_andaluzas_59944_600..webp)
+![Caldo de pollo sin verduras](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_600.jpg)
 
 Las **migas de pan** son un plato típico de invierno en España, sobre todo en la región del sur. Este plato, de orígenes humildes, ha ido evolucionando y ahora es considerado una exquisitez por muchos. Las migas de pan andaluzas son una de esas recetas de aprovechamiento, perfectas para no desperdiciar nada en la cocina.
 
