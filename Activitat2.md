@@ -4,25 +4,25 @@ Por Montse Morote Ortega, Bloguera cocinera, amante de la cocina de siempre: sen
 
 ![Caldo de pollo sin verduras](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_600.jpg)
 
-Las **migas de pan** son un plato típico de invierno en España, sobre todo en la región del sur. Este plato, de orígenes humildes, ha ido evolucionando y ahora es considerado una exquisitez por muchos. Las migas de pan andaluzas son una de esas recetas de aprovechamiento, perfectas para no desperdiciar nada en la cocina.
+El **caldo de pollo casero** sin verduras consta de una deliciosa elaboración que sienta muy bien en los días de frío. Además, debes saber que preparar caldo es muy sencillo, solo debes tener buenos ingredientes, sobre todo, es importante que el pollo esté exquisito, sea bien fresco, de esta forma, te saldrá un buen caldo sin grasa y sin verduras. Si lo deseas, puedes hacer una buena olla de caldo y así tener para varios días, también se puede congelar en botes y tener en cualquier momento.
+
+n RecetasGratis te enseñamos cómo hacer **caldo de pollo sin verduras.** ¡A cocinar!
 
 La **receta de migas andaluzas** que te presento a continuación es una receta sencilla y práctica con la que conseguirás preparar las mejores migas. Presta atención y recuerda que la idea de este plato es darle utilidad al pan viejo, así que ve guardando todas las barras de pan que te sobren durante unos días.
 
 | Comensales | Tiempo | Tipo de plato | Dificultad |
 |------------|--------|---------------|------------|
-| 👥6 comensales | 🕒30 min | 🍽Principal | 📶Baja       |
+| 👥4 comensales | 🕒1h 30 min | 🍽Principal | 📶Baja       |
 
 | **Características adicionales**                                                                                   |
 |--------------------------------------------------------------------------------------------------------------|
-| Coste barato, Popular en Otoño-Invierno, Salteado, [Recetas españolas](https://www.recetasgratis.net/recetas-espanolas), [Recetas andaluzas](https://www.recetasgratis.net/recetas-andaluzas) |
+| Coste barato|
 
-| Ingredientes para hacer Migas de Pan Andaluzas | |
+| Ingredientes para hacer Caldo de pollo sin verduras: | |
 |-----------------------------------------------|------------------------------------------------|
-| [ ] 1 kilogramo de Pan duro                   | [ ] 200 gramos de Jamón dulce                 |
-| [ ] 200 gramos de Chorizo                     | [ ] Agua                                       |
-| [ ] ½ cabeza de Ajo                           | [ ] Sal                                        |
-| [ ] 200 gramos de Bacon                       | [ ] Aceite                                     |
-| [ ] 200 gramos de Chistorra                   | [ ] Mandarinas                                 |
+| [ ] 2 litros de agua                  | [ ]  1 hueso salado                |
+| [ ] 2 carcasas de pollo                     | [ ] 1 huesos de ternera                                       |
+| [ ] 1 muslo                           | [ ] 1 pizca de sal                                        |
 
 **También te puede interesar:** [Migas extremeñas caseras](https://www.recetasgratis.net/receta-de-migas-extremenas-caseras-60269.html)
 
