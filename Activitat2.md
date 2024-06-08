@@ -66,8 +66,3 @@ Los restos que han quedado de pollo, puedes utilizarlo para acompañar el caldo 
 
 Si te ha gustado la receta de **Caldo de pollo sin verduras**, te sugerimos que entres en nuestra categoría de [Recetas de Caldos](https://www.recetasgratis.net/receta-de-croquetas-de-pollo-y-jamon-59331.html).
 
-| ![Caldo tlalpeño de pollo](https://cdn0.recetasgratis.net/es/posts/7/8/1/caldo_tlalpeno_de_pollo_62187_300_150.jpg) | ![Caldo de res con verduras]([https://via.placeholder.com/150](https://cdn0.recetasgratis.net/es/posts/4/2/8/caldo_de_res_con_verduras_76824_300_150.jpg)) |
-| ![Caldo de carne y verduras]([https://via.placeholder.com/150](https://cdn0.recetasgratis.net/es/posts/1/0/8/caldo_de_carne_y_verduras_55801_300_150.jpg)) | ![Caldo depurativo de verduras]([https://via.placeholder.com/150](https://cdn0.recetasgratis.net/es/posts/3/1/3/caldo_depurativo_de_verduras_53313_300_150.jpg)) |
-| ![Caldo de verdura y carne]([https://via.placeholder.com/150](https://cdn0.recetasgratis.net/es/posts/3/9/3/caldo_de_verdura_y_carne_33393_300_150.jpg)) | ![Caldo tlalpeño]([https://via.placeholder.com/150](https://cdn0.recetasgratis.net/es/posts/0/5/4/caldo_tlalpeno_59450_300_150.jpg)) |
-| ![Caldo de pollo con guajillo](https://cdn0.recetasgratis.net/es/posts/5/3/4/caldo_de_pollo_con_guajillo_56435_300_150.jpg) | ![Caldo de pollo casero](https://cdn0.recetasgratis.net/es/posts/8/1/2/caldo_de_pollo_casero_37218_300_150.jpg) |
-
