@@ -33,7 +33,7 @@ La **receta de migas andaluzas** que te presento a continuación es una receta s
 
 ![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_0_600.jpg)
 
-<big>2.</big> **Lava los huesos**, el salado es un hueso de rodilla ,el hueso salado le da sabor al caldo y que quede más blanco.
+<2. **Lava los huesos**, el salado es un hueso de rodilla ,el hueso salado le da sabor al caldo y que quede más blanco.
 
 ***Truco**el hueso salado le da sabor al caldo.*
 
