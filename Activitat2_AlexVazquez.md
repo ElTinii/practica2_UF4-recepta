@@ -27,7 +27,7 @@ La **receta de migas andaluzas** que te presento a continuación es una receta s
 **También te puede interesar:** [Caldo de verduras y pollo](https://www.recetasgratis.net/receta-de-caldo-de-verduras-y-pollo-56094.html)
 
 ### Cómo hacer Caldo de pollo sin verduras:
-##1. ¿Te preguntas cómo preparar caldo de pollo sencillo? Pues bien, para empezar con la receta de caldo de pollo sin verduras, primero debes preparar el pollo. Asimismo, **limpia bien retirando la piel y toda la grasa** que tenga este. Luego, **limpia las carcasas de sangre** y restos. Al muslo se debe quitar también la piel.
+##1.## ¿Te preguntas cómo preparar caldo de pollo sencillo? Pues bien, para empezar con la receta de caldo de pollo sin verduras, primero debes preparar el pollo. Asimismo, **limpia bien retirando la piel y toda la grasa** que tenga este. Luego, **limpia las carcasas de sangre** y restos. Al muslo se debe quitar también la piel.
 
 ***Truco:** se puede añadir más huesos de pollo, con carne o sin carne y, luego, se puede aprovechar la carne para preparar croquetas*.
 
