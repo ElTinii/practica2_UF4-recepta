@@ -66,30 +66,8 @@ Los restos que han quedado de pollo, puedes utilizarlo para acompañar el caldo 
 
 Si te ha gustado la receta de **Caldo de pollo sin verduras**, te sugerimos que entres en nuestra categoría de [Recetas de Caldos](https://www.recetasgratis.net/receta-de-croquetas-de-pollo-y-jamon-59331.html).
 
-![Migas de Pan Andaluzas](img/migas_de_pan_andaluzas_59944_paso_5_600.webp)
+| ![Caldo tlalpeño de pollo](https://cdn0.recetasgratis.net/es/posts/7/8/1/caldo_tlalpeno_de_pollo_62187_300_150.jpg) | ![Caldo de res con verduras]([https://via.placeholder.com/150](https://cdn0.recetasgratis.net/es/posts/4/2/8/caldo_de_res_con_verduras_76824_300_150.jpg)) |
+| ![Caldo de carne y verduras]([https://via.placeholder.com/150](https://cdn0.recetasgratis.net/es/posts/1/0/8/caldo_de_carne_y_verduras_55801_300_150.jpg)) | ![Caldo depurativo de verduras]([https://via.placeholder.com/150](https://cdn0.recetasgratis.net/es/posts/3/1/3/caldo_depurativo_de_verduras_53313_300_150.jpg)) |
+| ![Caldo de verdura y carne]([https://via.placeholder.com/150](https://cdn0.recetasgratis.net/es/posts/3/9/3/caldo_de_verdura_y_carne_33393_300_150.jpg)) | ![Caldo tlalpeño]([https://via.placeholder.com/150](https://cdn0.recetasgratis.net/es/posts/0/5/4/caldo_tlalpeno_59450_300_150.jpg)) |
+| ![Caldo de pollo con guajillo](https://cdn0.recetasgratis.net/es/posts/5/3/4/caldo_de_pollo_con_guajillo_56435_300_150.jpg) | ![Caldo de pollo casero](https://cdn0.recetasgratis.net/es/posts/8/1/2/caldo_de_pollo_casero_37218_300_150.jpg) |
 
-Si te ha gustado la receta de **Migas de pan andaluzas**, te sugerimos que entres en nuestra categoría de [Recetas de Migas](https://www.recetasgratis.net/Migas-busqCate-1.html). También puedes visitar una selección de las mejores [recetas españolas](https://www.recetasgratis.net/recetas-espanolas) y [recetas andaluzas](https://www.recetasgratis.net/Caldo-busqCate-1.html).
-
-![Migas extremeñas](img/las_originales_migas_extremenas_50605_300_150.webp)
-[Migas extremeñas](https://www.recetasgratis.net/receta-de-las-originales-migas-extremenas-50605.html)
-
-![Migas manchegas](img/deliciosas_migas_manchegas_50603_300_150.webp)
-[Deliciosas Migas manchegas](https://www.recetasgratis.net/receta-de-deliciosas-migas-manchegas-50603.html)
-
-![Migas con huevo flor](img/migas_con_huevo_flor_52230_300_150.webp)
-[Migas con huevo flor](https://www.recetasgratis.net/receta-de-migas-con-huevo-flor-52230.html)
-
-![Migas (Sierra de Huelva)](img/migas_sierra_de_huelva_25311_300_150.webp)
-[Migas (Sierra de Huelva)](https://www.recetasgratis.net/receta-de-migas-sierra-de-huelva-25311.html)
-
-![Exquisitas Migas de Aragón](img/exquisitas_migas_de_aragon_50608_300_150.webp)
-[Exquisitas Migas de Aragón](https://www.recetasgratis.net/receta-de-exquisitas-migas-de-aragon-50608.html)
-
-![Migas manchegas originales](img/migas_manchegas_originales_50604_300_150.webp)
-[Migas manchegas originales](https://www.recetasgratis.net/receta-de-migas-manchegas-originales-50604.html)
-
-![Migas Ruleras](img/migas_ruleras_53470_300_150.webp)
-[Migas Ruleras](https://www.recetasgratis.net/receta-de-migas-ruleras-53470.html)
-
-![Migas a la mariquilla](img/migas_a_la_mariquilla_33440_300_150.webp)
-[Migas a la mariquilla](https://www.recetasgratis.net/receta-de-migas-a-la-mariquilla-33440.html)
