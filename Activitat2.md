@@ -27,33 +27,38 @@ La **receta de migas andaluzas** que te presento a continuación es una receta s
 **También te puede interesar:** [Caldo de verduras y pollo](href="https://www.recetasgratis.net/receta-de-caldo-de-verduras-y-pollo-56094.html")
 
 ### Cómo hacer Caldo de pollo sin verduras:
-**1.** ¿Te preguntas cómo preparar caldo de pollo sencillo? Pues bien, para empezar con la receta de caldo de pollo sin verduras, primero debes preparar el pollo. Asimismo, **limpia bien retirando la piel y toda la grasa** que tenga este. Luego, **limpia las carcasas de sangre** y restos. Al muslo se debe quitar también la piel.
+##1. ¿Te preguntas cómo preparar caldo de pollo sencillo? Pues bien, para empezar con la receta de caldo de pollo sin verduras, primero debes preparar el pollo. Asimismo, **limpia bien retirando la piel y toda la grasa** que tenga este. Luego, **limpia las carcasas de sangre** y restos. Al muslo se debe quitar también la piel.
 
 ***Truco**: se puede añadir más huesos de pollo, con carne o sin carne y, luego, se puede aprovechar la carne para preparar croquetas*.
 
 ![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_0_600.jpg)
 
-<sup>2.</sup> **Lava los huesos**, el salado es un hueso de rodilla ,el hueso salado le da sabor al caldo y que quede más blanco.
+##2. **Lava los huesos**, el salado es un hueso de rodilla ,el hueso salado le da sabor al caldo y que quede más blanco.
 
 ***Truco**el hueso salado le da sabor al caldo.*
 
-3. A continuación, coloca toda la carne en la sartén, es decir, el chorizo, el bacon, el jamón dulce y la chistorra, y sofríe en conjunto. La idea es que el aceite vaya tomando el sabor de todos estos ingredientes.
+![Hueso de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_1_600.jpg)
 
-La carne puedes comprarla ya cortada en tiras o sino, deberás cortarla tú mismo, todo en trozos pequeños, más o menos parecidos a los trozos de pan.
+##3. **Coloca una olla con 2 litros de agua a calentar y añade todos los ingredientes**, el agua debe cubrir todo. Asimismo, si hace falta añade más agua. Deja hasta que empiece a hervir y, cuando empiece a tener espuma, retira y limpia bien de las impurezas. Cuando no salga más espuma y esté limpio, deja a fuego medio cocinar una **1 y media - 2 horas**.
 
-**Truco:** *Las migas de pan pueden llevar cualquier tipo de embutido.*
+***Truco**si tienes una olla express o rápida solo debes dejar unos 30-40 minutos, dependiendo de la olla.*
 
-4. Cuando ya tengas este sofrito hecho, y veas que todo el embutido ha soltado su propio aceite, deberás añadir a la sartén un poco de agua con una pizca de sal.
+![Caldo de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_2_600.jpg)
 
-La cantidad de agua es al gusto, pero de momento puedes empezar con un vaso pequeño.
+##4.Cuando esté el caldo, apaga, **retira los huesos y el pollo.**
 
-5. Inmediatamente después, incorpora todos los trozos de pan viejo que has cortado y ve removiendo para que se empapen por completo con todo el aceite del sofrito y el agua.
+![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_3_600.jpg)
 
-Entonces, para terminar de cocinar nuestras migas andaluzas, deberás mantener la cocción a fuego medio-bajo y **remover de forma constante** hasta que se haya consumido todo el líquido.
+##5. 
+![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_4_600.jpg)
 
-El secreto de unas buenas migas de pan es remover todo sin parar, así evitamos que el pan se queme y conseguimos que este absorba bien los sabores de todo el embutido.
+ ##6. 
 
-6. Espera que repose unos minutos y sirve este delicioso plato de invierno junto con unas uvas o mandarinas de guarnición. Esta **receta de migas andaluzas** es una versión fácil y rápida de la receta original, en la que normalmente se va sacando de la sartén todo el embutido una vez sofrito.
+![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_5_600.jpg)
+
+##7.
+
+![Muslos de pollo](https://cdn0.recetasgratis.net/es/posts/4/4/2/caldo_de_pollo_sin_verduras_76244_paso_6_600.jpg)
 
 Otra versión de este famoso plato de comida española son las [migas de harina de trigo](https://www.recetasgratis.net/receta-de-migas-de-harina-de-trigo-59819.html). Y si te sigue sobrando pan también puedes ¡preparar un postre con pan viejo!, así que aquí tienes la receta de la [torta de pan colombiana](https://www.recetasgratis.net/receta-de-torta-de-pan-colombiana-17831.html). ¡Buen provecho!
 
